@@ -4,7 +4,7 @@ As your manager, I look forward to getting to know more about both you and your 
 
 #### Most importantly, I am here to help you contribute as many of your talents as possible. 
 
-*Disclaimer - These are my views, not the views of my co-workers, my company, or my leaders. I will update this document as I mature and grow as a leader and as an engineer. 
+*Disclaimer - These are my views, not the views of my co-workers, my company, or my leaders. I will update this document as I mature and grow as a leader and as an engineer.*
 
 ## My Leadership Style 
 
