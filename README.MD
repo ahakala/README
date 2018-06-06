@@ -15,7 +15,7 @@ I feel I am doing my best management when I am "hands off". I brought you into t
 
  - I value growth and discovery. We should be pushing ourselves to solve for the present with an eye towards the future. If we are not learning every day, we must pay more attention becuase we are missing valueable moments. 
 
- - I care less about where you have been and more about where you are going. This is not to minimize your previous experience, it is what got you to where you are today. Rather than recreate the past, I would love to see you push yourslef, our team, and our company to new heights.
+ - I care less about where you have been and more about where you are going. This is not to minimize your previous experience, it is what got you to where you are today. Rather than recreate the past, I would love to see you push yourself, our team, and our company to new heights.
 
 ### Work Life Balance
 I have many things that I like to do when I am not at work, I am sure you do too. For this reason, I do not expect you to come in early or stay late on any kind of regular basis. There will be times where we must but I will do my best to keep them to a minimum. Sometimes you might see me online, working late at night. This **does not** mean that I expect you to do the same.
