@@ -13,7 +13,7 @@ I feel I am doing my best management when I am "hands off". I brought you into t
 ## My Values
  - I value high levels of customer engagement. Our best work happens when we collaborate with our customers. 
 
- - I value growth and discovery. We should be pushing ourselves to solve for the present with an eye towards the future. If we are not learning every day, we must pay more attention becuase we are missing valueable moments. 
+ - I value growth and discovery. We should be pushing ourselves to solve for the present with an eye towards the future. If we are not learning every day, we must pay more attention because we are missing valuable moments. 
 
  - I care less about where you have been and more about where you are going. This is not to minimize your previous experience, it is what got you to where you are today. Rather than recreate the past, I would love to see you push yourself, our team, and our company to new heights.
 
