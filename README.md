@@ -25,10 +25,10 @@ I have many things that I like to do when I am not at work. I am sure you do too
 *Just some general day-to-day things for around the office*
 
 #### Work Hours
-I expect that you come to the office and keep a regular schedule. Generally, this means getting in sometime between 7am and 9am. Sometimes you will need to work from home and that works for me, but I would prefer that you do not work from home regularly. If that is a problem, we can talk about it. 
+I expect that you keep a regular schedule and be available for our customers. Generally, this means getting in sometime between 7am and 9am. Sometimes you will need to make exceptions and that works for me, but I would prefer that you stick to the schedule whenever possible. If that is a problem, we can talk about it. 
 
 #### Asking Questions
 I am a big fan of asking questions. I want you to feel empowered to make decisions to drive outcomes for our customers and the company. If you are ever unsure or need advice, please ask. My calendar may look full or I may seem busy, but I will always find (or make) time for your questions. 
 
 #### 1 on 1's 
-This is a new thing for me. I want these meetings to focus on what you need. They are more than just a status update. They'll be 30 minutes, once a week, but you can have more time if you need it. 
+I want these meetings to focus on what you need. They are more than just a status update. They'll be 30 minutes, once a week, but you can have more time if you need it. 
