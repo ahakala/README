@@ -1,6 +1,6 @@
 *Disclaimer - These are my views, not the views of my co-workers, my company, or my leaders. I will update this document as I mature and grow as a leader and as an engineer.*
 
-# Andy Hakala - Engineering Manager
+# Andy Hakala - Engineering Leader
 
 As your manager, I look forward to getting to know more about both you and your work. I'd like to use this file as a jump-start for you to get to know a few things about me. 
 
