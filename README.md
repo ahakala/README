@@ -2,7 +2,7 @@
 
 # Andy Hakala - Engineering Leader
 
-As your manager, I look forward to getting to know more about both you and your work. I'd like to use this file as a jump-start for you to get to know a few things about me. 
+As your leader, I look forward to getting to know more about both you and your work. I'd like to use this file as a jump-start for you to get to know a few things about me. 
 
 #### Most importantly, I am here to help you contribute as many of your talents as possible. 
 
