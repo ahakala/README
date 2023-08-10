@@ -12,11 +12,14 @@ As your manager, I look forward to getting to know more about both you and your 
 I feel I am doing my best management when I am "hands-off". I brought you into this team because I believe that you have all the skills to take us to the next level. If you don't agree, let's talk. My job is to help you be successful!  
 
 ## My Values
+
+Everyone is at a different point in their career journey and each journey has a unique destination. Some are just starting while others may be so lucky as to have public accolades regarding past contributions. Whatever the case, please remember that the world is a big place and there will always be someone with more experience, deeper understanding, and superior craft. Seek these individuals out and learn from them. 
+
  - I value high levels of customer engagement. Our best work happens when we collaborate with our customers. 
 
  - I value growth and discovery. We should push ourselves to solve for the present, with an eye towards the future. If we are not learning every day, we must pay more attention because we are missing valuable moments. 
 
- - I care less about where you have been and more about where you are going. This is not to minimize your previous experience, which is what got you to where you are today. Rather than recreate the past, I would love to see you push yourself, our team, and our company to new heights.
+ - I expect that you possess the technical background necessary to participate in successful outcomes at the apropriate level. Example: I wouldn't expect a project manager to be a master software developer. I would expect them to have (or gain) enough information to understand the work that is happening and carry meaningful conversations with the team.   
 
 ### Work-Life Balance
 I have many things that I like to do when I am not at work. I am sure you do too. For this reason, I do not expect you to come in early or stay late on any kind of regular basis. There will be times where we must but I will do my best to keep them to a minimum. Sometimes you might see me online, working late at night. This **does not** mean that I expect you to do the same.
